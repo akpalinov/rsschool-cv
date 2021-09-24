@@ -1,0 +1,1 @@
+https://akpalinov.github.io/rsschool-cv
